@@ -1,0 +1,1 @@
+# Explorando-recurso-IA-generativa-
